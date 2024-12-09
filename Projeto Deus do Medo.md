@@ -1,0 +1,1 @@
+OI. Perspectiva ingríme e inadequada para serviço. Pouca visão. Alteração necessária e imediata. Os pilares ainda não foram ativados, preciso ver como eles estão se saindo. Logo tudo vai mudar. O mundon não será o mesmo. Mesmo com o final.
